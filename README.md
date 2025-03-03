@@ -1,0 +1,1 @@
+# Checkpoint1_avd_Nova-Rasyadina
